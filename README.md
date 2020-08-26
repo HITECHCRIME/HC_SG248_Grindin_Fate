@@ -12,7 +12,7 @@ Description.
 
 > **Production:**  / **Lyrics:** 
 
-> **Beat:**
+> **Beat:** Ontiva.com_[FREE] $uicideboy$ Type Beat Mordor (Prod. NetuH) _ Dark Trap Beat (320  kbps)
 
 > **Narrative Design:**
 
