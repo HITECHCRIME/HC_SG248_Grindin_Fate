@@ -51,20 +51,25 @@ i've been grinding fate
 fucking rage
 
 say it all outright\
+let it out
 
 gone to filling in our points - say no wrong
 i've been dealing with these fuckers till i did it right
 it's been way out ducking just don't say to praise the wrong
-i've been deader than a corpse in a coffin dealt
+i've been deader than a corpse in a coffin dealt the hand
 
 how to say it i've been ready since revival
 hover till i can leave it all and lay it down
-i've been grinding my eyes 
+i've been grinding my heart out 
 it's the misery
 
 misery
 i've been grinding
+free 
+
+i've been grinding
 free the rebels
+i want their souls
 set their souls
 
 
