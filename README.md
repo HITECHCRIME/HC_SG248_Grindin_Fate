@@ -54,10 +54,10 @@ i can't say what's been done heart
 it's the misery
 
 i've been grinding free
-ready for the take down
+ready for my own road                               / take down
 
 i've been grinding free 
-the rebels i want their souls
+the rebels all i want is souls
 
 i've been grinding free forever
 wanna set their souls
