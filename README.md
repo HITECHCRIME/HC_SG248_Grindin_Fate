@@ -27,20 +27,10 @@ grinding fate i've been grinding fate imma say this in place of misery
 grinding fate i've been griding fate imma bite into phase erased
 grinding fate place on a razor right the wrong
 
-i've been - grinding - fate
-i've gone insane
-bite on the nails but got still erased
-
-grinding fate
-i've been grinding fate
-in this place of misery
-
-well grinding fate
-i've been grinding fate
-fucking rage
-
-say it all outright ya
-let it out ya
+i've been - grinding - fate, i've gone insane bite on the nails but got still erased
+grinding fate i've been grinding fate in this place of misery
+well grinding fate i've been grinding fate fucking rage
+say it all outright ya gotcha, let it out ya
 
 gone to filling outin our points - say no wrong
 i've been dealing with these fuckers till i did it right
@@ -55,7 +45,7 @@ i can't say what's been done heart
 i've been grinding free ready for my own road                               / take down
 i've been grinding free the rebels all i want is souls
 i've been grinding free forever wanna set their souls
-i've been grinding free for reapin wanna set their souls
+i've been grinding free for reapin wanna finish all
 
 ```
 
