@@ -42,7 +42,7 @@ fucking rage
 say it all outright ya
 let it out ya
 
-gone to filling in our points - say no wrong
+gone to filling outin our points - say no wrong
 i've been dealing with these fuckers till i did it right
 it's been way out ducking just don't say to praise the wrong
 i've been deader than a corpse in coffin dealt the hand
@@ -51,19 +51,11 @@ eyyy how to say it i've been ready since revival
 hover till i can leave it all out and lay it down
 i've been grinding my - heart out i'm phasing out
 i can't say what's been done heart
-it's the misery
 
-i've been grinding free
-ready for my own road                               / take down
-
-i've been grinding free 
-the rebels all i want is souls
-
-i've been grinding free forever
-wanna set their souls
-
-i've been grinding free for reapin
-wanna set their souls
+i've been grinding free ready for my own road                               / take down
+i've been grinding free the rebels all i want is souls
+i've been grinding free forever wanna set their souls
+i've been grinding free for reapin wanna set their souls
 
 ```
 
