@@ -40,7 +40,7 @@ i've been deader than a corpse in coffin dealt the hand
 eyyy how to say it i've been ready since revival
 hover till i can leave it all out and lay it down
 i've been grinding my - heart out i'm phasing out
-i can't say what's been done heart
+i can't say what's been done to my heart
 
 i've been grinding free ready for my own road                               / take down
 i've been grinding free the rebels all i want is souls
