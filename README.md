@@ -60,7 +60,7 @@ i've been grinding free
 the rebels i want their souls
 
 i've been grinding free forever
-set their souls
+wanna set their souls
 
 
 
