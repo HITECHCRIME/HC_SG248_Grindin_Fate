@@ -43,7 +43,7 @@ i've been grinding my - heart out and i'm phasing out
 i can't say what's been done to my heart
 
 i've been grinding free ready for my own road                               / take down
-i've been grinding free the rebels all i want is souls
+i've been grinding free the rebels all i want is souls / source
 i've been grinding free forever wanna set their souls / wanna eat my soul
 i've been grinding free for reapin wanna finish all
 
